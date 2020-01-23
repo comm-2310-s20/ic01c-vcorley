@@ -12,4 +12,10 @@
 
 1. My favorite YouTube channel is *Penny Tovar*
 
+1. My favorite videogame genre is *ActionAdventure*
+
+1. My favorite videogame is *The Legend of Zelda: Ocarina of Time*
+
+1. My favorite pokemon or videogame character is *glaceon*
+
 
